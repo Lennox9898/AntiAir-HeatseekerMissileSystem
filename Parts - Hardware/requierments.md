@@ -11,9 +11,7 @@ RFI SHLD MAT ELASTOMER ADH
 Standard delivery time of the manufacturer
 4 Week
 
-[Focal Pane Array](## https://lontenoe.com/products/ingaas-array-focal-plane-sensor)gd-nir32030m/)
-
-[Focal Pane Array]
+[Focal Pane Array](https://lontenoe.com/products/ingaas-array-focal-plane-sensor)gd-nir32030m/)
 
 engine parts:
 
